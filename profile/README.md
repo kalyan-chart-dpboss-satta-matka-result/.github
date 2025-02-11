@@ -3,7 +3,150 @@
 **Kalyan Chart DpBoss Satta Matka Result**: आज के सभी डीपीबॉस फिक्स फाइनल अंक देखें। जानिए सट्टा मटका के अद्यतन परिणाम, केल्यान चार्ट और डीपीबॉस के फिक्स फाइनल अंकों के बारे में पूरी जानकारी, ताकि आप अपने निवेश के फैसले सही तरीके से कर सकें।
 
 ---
+## Table of Contents
+1. [MILAN MORNING](#milan-morning)
+2. [SRIDEVI](#sridevi)
+3. [KALYAN MORNING](#kalyan-morning)
+4. [PADMAVATHI](#padmavathi)
+5. [MADHURI](#madhuri)
+6. [RAJDHANI MORNING [main]](#rajdhani-morning-main)
+7. [SRIDEVI MORNING](#sridevi-morning)
+8. [MAHARANI](#maharani)
+9. [KARNATAKA DAY](#karnataka-day)
+10. [TIME BAZAR MORNING](#time-bazar-morning)
+11. [TIME BAZAR](#time-bazar)
+12. [TARA MUMBAI DAY](#tara-mumbai-day)
+13. [PRABHAT](#prabhat)
+14. [DIAMOND](#diamond)
+15. [TIME BAZAR DAY](#time-bazar-day)
+16. [BK BAZAR](#bk-bazar)
+17. [MILAN DAY](#milan-day)
+18. [MAIN BAZAR DAY](#main-bazar-day)
+19. [PUNA BAZAR](#puna-bazar)
+20. [KALYAN](#kalyan)
+21. [SRIDEVI NIGHT](#sridevi-night)
+22. [DIAMOND NIGHT](#diamond-night)
+23. [MADHURI NIGHT](#madhuri-night)
+24. [NIGHT TIME BAZAR](#night-time-bazar)
+25. [TARA MUMBAI NIGHT](#tara-mumbai-night)
+26. [MILAN NIGHT](#milan-night)
+27. [RAJDHANI NIGHT](#rajdhani-night)
+28. [MAIN BAZAR](#main-bazar)
 
+## JodiPanel Schedule
+
+### MILAN MORNING
+- 129-26-268  
+- 10:15 AM - 11:15 AM
+
+### SRIDEVI
+- 360-94-789  
+- 11:35 AM - 12:35 PM
+
+### KALYAN MORNING
+- 478-97-124  
+- 11:00 AM - 12:02 PM
+
+### PADMAVATHI
+- 380-12-688  
+- 11:40 AM - 12:40 PM
+
+### MADHURI
+- 234-97-890  
+- 11:45 AM - 12:45 PM
+
+### RAJDHANI MORNING [main]
+- 380-17-124  
+- 11:25 AM - 12:55 PM
+
+### SRIDEVI MORNING
+- 389-01-489  
+- 09:30 AM - 10:30 AM
+
+### MAHARANI
+- 225-91-678  
+- 12:15 PM - 02:15 PM
+
+### KARNATAKA DAY
+- 450-96-880  
+- 10:00 AM - 11:00 AM
+
+### TIME BAZAR MORNING
+- 257-41-245  
+- 11:10 AM - 12:10 PM
+
+### TIME BAZAR
+- 679-26-600  
+- 01:10 PM - 02:10 PM
+
+### TARA MUMBAI DAY
+- 278-74-356  
+- 01:35 PM - 03:00 PM
+
+### PRABHAT
+- 355-34-455  
+- 01:30 PM - 03:00 PM
+
+### DIAMOND
+- 260-83-157  
+- 01:30 PM - 03:00 PM
+
+### TIME BAZAR DAY
+- 567-80-389  
+- 02:00 PM - 04:00 PM
+
+### BK BAZAR
+- 460-08-125  
+- 02:00 PM - 04:00 PM
+
+### MILAN DAY
+- 789-49-568  
+- 03:20 PM - 05:20 PM
+
+### MAIN BAZAR DAY
+- 350-86-123  
+- 03:35 PM - 05:35 PM
+
+### PUNA BAZAR
+- 190-01-128  
+- 01:15 PM - 03:15 PM
+
+### KALYAN
+- 359-71-470  
+- 03:45 PM - 05:45 PM
+
+### SRIDEVI NIGHT
+- 136-04-167  
+- 07:15 PM - 08:15 PM
+
+### DIAMOND NIGHT
+- 128-17-278  
+- 08:00 PM - 09:00 PM
+
+### MADHURI NIGHT
+- 578-09-199  
+- 06:45 PM - 07:45 PM
+
+### NIGHT TIME BAZAR
+- 280-07-250  
+- 08:35 PM - 10:35 PM
+
+### TARA MUMBAI NIGHT
+- 267-50-145  
+- 08:30 PM - 10:30 PM
+
+### MILAN NIGHT
+- 235-02-246  
+- 09:10 PM - 11:10 PM
+
+### RAJDHANI NIGHT
+- 690-51-245  
+- 09:35 PM - 11:45 PM
+
+### MAIN BAZAR
+- 269-70-280  
+- 10:00 PM - 12:10 AM
+---
 ### Kalyan Chart:
 [Kalyan Chart](https://github.com/Kalyan-Matka-Satta-Dpboss-Result-chart) एक प्रसिद्ध और ऐतिहासिक सट्टा मटका है जो विशेष रूप से भारत में सट्टा खेलने के शौकिनों के बीच बहुत लोकप्रिय है। यह चार्ट केल्यान मटका परिणामों का एक डेटा सेट होता है, जिसमें पिछले परिणामों के आंकड़े और भविष्य के लिए सट्टा परिणामों की भविष्यवाणियाँ दी जाती हैं। केल्यान चार्ट को समझना और पढ़ना किसी भी सट्टा मटका खिलाड़ी के लिए बहुत महत्वपूर्ण होता है, क्योंकि इसके द्वारा आप सटीक और अनुमानित आंकड़ों का विश्लेषण कर सकते हैं।
 
