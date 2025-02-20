@@ -63,11 +63,11 @@
 
 
 #### MILAN MORNING
-- **130-44-347**
+- **Loading...**
 - **10:15 AM - 11:15 AM**
 
 #### SRIDEVI
-- **359-70-235**
+- **Loading...**
 - **11:35 AM - 12:35 PM**
 
 #### KALYAN MORNING
